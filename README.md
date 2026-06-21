@@ -4,7 +4,7 @@
 
 🌍 Open to **Remote** & **Relocation** (Bangalore / Pune / Hyderabad / Global)  
 ⚡ **Immediate Joiner** | Ready to contribute from Day 1  
-📧 [hardikankoliya1@gmail.com](mailto:hardikankoliya1@gmail.com) | 💼 [LinkedIn](https://linkedin.com/in/hardik-ankoliya) | 🌐 [Resume](https://drive.google.com/file/d/1nbXagL9uBxWTvHA7rERn47XRaU0PE1v_/view?usp=drive_link)
+📧 [hardikankoliya1@gmail.com](mailto:hardikankoliya1@gmail.com) | 💼 [LinkedIn](https://linkedin.com/in/hardik-ankoliya) | 🌐 [Resume](https://drive.google.com/file/d/1wxPlKTdIHG8vwADZlzAaalxVp4dyYvl4/view?usp=drive_link)
 
 ---
 
